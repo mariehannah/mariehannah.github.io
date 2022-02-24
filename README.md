@@ -14,14 +14,13 @@
 
 
 
-
+# Our Beloved Summer 
 
 
 ![alt text](56473bd10966b949e82d21cccc812911.jpg)
 
 
 
-# Our Beloved Summer 
 
 
 
@@ -33,11 +32,11 @@
 
 
 
-
+# Twenty Five Twenty One 
 
 
 ![alt text](1efa6220bcf7e911cffe1dff06d3ade7.jpg)
 
 
 
-# Twenty Five Twenty One 
+
