@@ -3,7 +3,7 @@
 
 
 
-                                     *This is a sample webpage thank you* 
+                   *This is a sample webpage thank you* 
 
 
 
